@@ -1,2 +1,2 @@
 Jacob Shulman
-Content Author: Synthesis
+Content Author at Synthesis
